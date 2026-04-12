@@ -13,6 +13,8 @@ I am intetested in the biogeochemical cycling of carbon and nutrients in marine 
 
 "I would rather have questions that can't be answered, than answers that can't be questioned." 
                                                                               Richard Feynman 
+
+<img src="/images/gallary/IMG_0632.osm.png" width="300">
 ------
 
 
